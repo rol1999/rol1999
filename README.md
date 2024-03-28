@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rol1999
+- 👀 I’m interested in aviation.
+- ⚡ Fun fact: borben
